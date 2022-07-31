@@ -25,6 +25,9 @@ $ ls ( L kecil )
 $ cd cracking7
 $ python sister.py
 ```
+```php
+Saran metode nomor [ 2 ]
+```
 ## Cara Update
 ```php
 $ cd
