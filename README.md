@@ -1,8 +1,8 @@
 # Coming soon 🔥
 # Segera hadir 😘
-# Pake doang ga follow, kondol lohh 🗿
+# Pake doang ga follow, kondol lohh 
 Logo ♥️
-![deskripsi gambar](https://i.ibb.co/dLPR0qr/Screenshot-2022-07-31-07-34-14-362-com-termux.png)
+![deskripsi gambar](https://i.ibb.co/VQgsWZt/Screenshot-2022-07-31-07-34-14-362-com-termux.png)
 Result 🔥
 ![deskripsi gambar](https://i.ibb.co/0cjchPw/Screenshot-2022-07-31-03-24-46-177-com-termux.png)
 Gambar hanya pemanis 🐕 selebihnya cobain sendiri 💩
