@@ -1,5 +1,7 @@
-# Coming soon 🔥
-# Segera hadir 😘
+# 100% Free + Support all bit 🐕
+## Info Last Update 🎉
+Bocil dilarang install 🗿, Hasil ga cp² amat masih ada Ijonya tenang aee 💩
+Untuk Script Instagram menyusul 🙃 Tunggu aee 
 # Pake doang ga follow, kondol lohh 
 Logo ♥️
 ![deskripsi gambar](https://i.ibb.co/VQgsWZt/Screenshot-2022-07-31-07-34-14-362-com-termux.png)
